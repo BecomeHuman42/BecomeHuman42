@@ -9,6 +9,5 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Computer Science
 - 🤔 I’m looking for help with Study
 - 📫 How to reach me: lyrbl42@gmail.com
-- 😄 Pronouns: 42
 - ⚡ Fun fact: I'm trying to become a PMA player in Dota2.
 Have a good day! ^^
