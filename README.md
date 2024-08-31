@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Study
 - 📫 How to reach me: lyrbl42@gmail.com
 - ⚡ Fun fact: I'm trying to become a PMA player in Dota2.
-Have a good day! ^^
+Have a good day! ^^^
